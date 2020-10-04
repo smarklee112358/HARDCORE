@@ -1,0 +1,2 @@
+# HARDCORE
+DeGenS of COrE
